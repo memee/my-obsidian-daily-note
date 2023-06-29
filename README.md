@@ -1,0 +1,1 @@
+# my-obsidian-daily-note
